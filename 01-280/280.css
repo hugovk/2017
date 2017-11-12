@@ -1,0 +1,40 @@
+@page {
+    size: 5in 7in;
+    margin: 0.75cm;
+}
+html, body {
+    height: 100%;
+}
+body {
+    color: black;
+    font-family: "Helvetica Neue",Helvetica,Arial,sans-serif;
+    font-size: 14px;
+}
+h1 {
+    font-size: 280px;
+    margin: 28px;
+    text-align: center;
+}
+a, a:visited, a:hover, a:active {
+    color: inherit;
+    text-decoration: none;
+}
+div {
+    -webkit-margin-before: 0;
+    -webkit-margin-after: 0;
+    border: 1px solid;
+    line-height: 1.4;
+    margin: 14px;
+    padding: 28px;
+    word-wrap: break-word;
+}
+.s {
+    color: forestgreen;
+    font-size: larger;
+    text-align: right;
+}
+.l {
+    color: firebrick;
+    font-size: larger;
+    text-align: left;
+}

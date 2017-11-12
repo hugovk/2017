@@ -10,7 +10,7 @@ TODO
 
 ## What it does
 
-Searches Twitter for "280" and outputs one short tweet of 140 characters or less, then long tweet one over 140, then repeats until 56,000 words (280 * 200). Or can only out short tweets. Or can only output long tweets.
+Searches Twitter for "280" and outputs one short tweet of 140 characters or less, then long tweet one over 140, then repeats until 56,000 words (280 * 200). Or can only output short tweets. Or can only output long tweets.
 
 ## How to do it
 
