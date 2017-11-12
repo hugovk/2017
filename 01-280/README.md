@@ -6,7 +6,9 @@
 
 ## Generated output
 
-TODO
+* [280.html](https://hugovk.github.io/NaNogenMo-2017/01-280/280.html) - short and long tweets
+* [280-short.html](https://hugovk.github.io/NaNogenMo-2017/01-280/280-short.html) - only short tweets
+* [280-long.html](https://hugovk.github.io/NaNogenMo-2017/01-280/280-long.html) - only long tweets
 
 ## What it does
 
