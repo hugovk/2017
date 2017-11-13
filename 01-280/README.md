@@ -1,14 +1,14 @@
 # 280
 
 <p align="center">
-<a href="https://twitter.com/survivorevan/status/928041592207818752"><img src="https://github.com/hugovk/NaNogenMo-2017/blob/master/01-280/tweet.png?raw=true" width="75%" height="75%"></a>
+<a href="https://twitter.com/survivorevan/status/928041592207818752"><img src="https://github.com/hugovk/NaNoGenMo-2017/blob/master/01-280/tweet.png?raw=true" width="75%" height="75%"></a>
 </p>
 
 ## Generated output
 
-* [280.html](https://hugovk.github.io/NaNogenMo-2017/01-280/280.html) - short and long tweets
-* [280-short.html](https://hugovk.github.io/NaNogenMo-2017/01-280/280-short.html) - only short tweets
-* [280-long.html](https://hugovk.github.io/NaNogenMo-2017/01-280/280-long.html) - only long tweets
+* [280.html](https://hugovk.github.io/NaNoGenMo-2017/01-280/280.html) - short and long tweets
+* [280-short.html](https://hugovk.github.io/NaNoGenMo-2017/01-280/280-short.html) - only short tweets
+* [280-long.html](https://hugovk.github.io/NaNoGenMo-2017/01-280/280-long.html) - only long tweets
 
 ## What it does
 
