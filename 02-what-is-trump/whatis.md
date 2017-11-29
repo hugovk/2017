@@ -1,4 +1,4 @@
-24/11/2017-11-24 14:03:28
+2017-11-24 14:03:28
 
 Alabama
 -------
@@ -39,7 +39,7 @@ Trump is a fucking bellend of staggering proportions.
 trump is one of the worst people should be free to retweet some living cats to help me feel better
 Not gonna lie, Donald Trump is ballin'.
 President Trump is playing golf today with Tiger and DJ. I got my money on Trump beating Tiger...
-Trump is an epic failure as potus...and he knows it. 
+Trump is an epic failure as potus...and he knows it.
 
 The most despised potus in history.
 “Trump is the margarine of presidents”
@@ -111,9 +111,9 @@ the senate is an home 4 the sick & old, the house is full of creeps & trump is n
 Trump is the worst president in the history of this country by a bigger landslide than his popular vote loss.
 still waiting for the day when it's finally revealed that this whole trump is president thing is a joke and obama comes back to save all
 Tiger Woods has made a lot of questionable decions ... playing golf with Donald Trump is among the worst.
-Donald trump is attacking the nfl again 🙄 
+Donald trump is attacking the nfl again 🙄
 Just go play golf until you get impeached please
-Trump is walking talking instinct. The embodiment of impulses. Both good and base. 
+Trump is walking talking instinct. The embodiment of impulses. Both good and base.
 
 Mostly base.
 "TRUMP is my President"! and the Temputure in Crab Orchard is: Temp: 47.6°F Wind:1.1mph Pressure: 28.85in Steady Rain Today 0.00in.
@@ -281,12 +281,12 @@ It just dawned on me...we have this all wrong...Trump is actually helping OJ sco
 Tiger Woods has always been a piece of shit. Associating with Trump is part of his brand.
 Trump is more establishment than the "establishment" itself.
 "TRUMP is my President"! and the Temputure in Crab Orchard is: Temp: 60.0°F Wind:3.1mph Pressure: 28.82in Falling slowly Rain Today 0.00in.
-Trump is pointing at Tiger Woods and telling his friends “Look at my African-American over there.” 
+Trump is pointing at Tiger Woods and telling his friends “Look at my African-American over there.”
 
 😭😭🤣🤣
 WHAT IF TRUMP IS SGT.
 Trump is already tweeting that Black Friday is the most ungrateful of all the Fridays.
-Donald Trump is my President. 
+Donald Trump is my President.
 Jesus Christ is my King.
 Trump is the morning breath of people
 Today is 2017-11-24 10:00 AM in LA and Donald J. Trump is still the President.
@@ -551,7 +551,7 @@ DONALD J. TRUMP IS ONLY THE FIGURE HEAD. AMERICA IS THE ENTIRE SHIP.
 Trump is the turkey at the national feast.
 Donald Trump is a LIAR.
 
-Nothing more to it. 
+Nothing more to it.
 
 LIES. LIES. LIES.
 I can’t believe Donald Trump is allowed to tweet 180 characters. The world needs to move towards a better place.
@@ -581,7 +581,7 @@ The  rampant egomania of Trump is a terrible cancer spreading around and poisoni
 Trump is the president, America killed natives, idc. Y’all did that. I just get DWI’s and go in debt. Fuck off
 I'm more than happy to say it.
 
-Donald Trump is a piece of shit. A huge piece of shit. 
+Donald Trump is a piece of shit. A huge piece of shit.
 
 Actually, not just a piece. He's the entire shit.
 Donald Trump is THE example of how to be an energy convertor.
@@ -665,7 +665,7 @@ trump is bad, but hillary is worse
 every time i visit my grandma she tries to convince me that Trump is good & Hillary is lesbian
 Trump is gonna put a hit on Flynn
 I have a goal to tweet that trump is a rapist every day until ppl force him to resign or open an ethics investigation
-I hear that trump Is sending troops to Syria . Is this true ? 
+I hear that trump Is sending troops to Syria . Is this true ?
 
 Ok .
 Today is 2017-11-24 03:00 PM in LA and Donald J. Trump is still the President.
@@ -768,7 +768,7 @@ time is going to make colin kaepernick man of the year and trump is going to shi
 I assume anyone who supports trump is involve with incest.
 "TRUMP is my President"! and the Temputure in Crab Orchard is: Temp: 53.2°F Wind:0.0mph Pressure: 28.67in Falling Rain Today 0.00in.
 I wake up every morning wishing to hear that trump is no longer with us. Actually, make that every trump, GOP rep, and fox news pundit.
-Donald Trump is doing an infinitely better job at running a Country than Theresa May. 
+Donald Trump is doing an infinitely better job at running a Country than Theresa May.
 
 Go on. Come at me. I double fucking dare you.
 99% sure Donald trump is a parody. Has to be.
@@ -839,9 +839,9 @@ Uber driver has a radio channel on where Trump is talking and I’m honestly tem
 Donald trump is really the president wow
 Donald Trump is the grift that keeps on grifting.
 If Donald Trump is white, I'm fucking purple
-What a great year ! 
-Trump is everyone s president 
-401k shot through all expectations 
+What a great year !
+Trump is everyone s president
+401k shot through all expectations
 Early retirement !
 Trump is jealous that the football players can kneel and get up without help.
 people freaking out about malia smoking weed while trump is our president is laughable
@@ -871,7 +871,7 @@ arpaio like trump is a joke in our political system. deceitful, vengeful and no 
 I was 2006 Time Person of the Year and they didn’t demand a photo shoot. No idea what Trump is talking about.
 Donald Trump is so old he actually cares about Time's Person of the Year.
 "TRUMP is my President"! and the Temputure in Crab Orchard is: Temp: 53.5°F Wind:2.0mph Pressure: 28.70in Steady Rain Today 0.00in.
-Also: Trump is so old that Time's "Person of the Year" choice 
+Also: Trump is so old that Time's "Person of the Year" choice
 actually matters to him.
 I just realized Trump is the Regina George of the political world
 The Ball family is the only black people Trump is helping & he doesn’t even realize it lmao
@@ -962,7 +962,7 @@ The Time Person of the Year should be Vladimir Putin since Donald Trump is so in
 Trump is so insecure lmao
 Trump is so comedically terrible
 I think Trump is confusing Person of the Year with America's Most Wanted.
-Yes trump is a piece of shit. But Hillary cheated her own teammate because she knew she couldn't wait outright. 
+Yes trump is a piece of shit. But Hillary cheated her own teammate because she knew she couldn't wait outright.
 
 What that tell you ?
 trump is so ugly looool
@@ -1005,7 +1005,7 @@ Iowa
 ----
 Trump is setting a new standard on Twitter this week
 trump is a coon
-Trump is dodo 
+Trump is dodo
 
 🔁143635746         ❤️264736563
 wants everything to be about Trump only not about the American People & Military Soldiers. AMERICA WAKE UP! Trump is Lying to the (2/4)
@@ -1302,7 +1302,7 @@ Donald Trump is a fool lol
 It's funny to me that Trump is getting trashed by everybody this week. Hahaha.
 My partner’s conservative family aren’t happy and I think it’s because Trump is their standard bearer and he’s wearing even them thin.
 Trump is big faggot.
-Conspiracy theory: 
+Conspiracy theory:
 Donald Trump is a fat and wild version of Owen Wilson
 
 I’ll speak more of this when I find solid facts
@@ -1445,7 +1445,7 @@ everyone who voted for trump is becoming fed up with him lmao but...u made your 
 
 Maryland
 --------
-Trump is DEFINITELY my  
+Trump is DEFINITELY my
 "Person of the Year"
 ... and of the century!
 It's been a quick minute and I'm still SHOOK that Donald Trump is the president. Like ❓❓❓
@@ -1481,13 +1481,13 @@ We're so thankful Trump is pushing for that border wall to keep us safe from whi
 "TRUMP is my President"! and the Temputure in Crab Orchard is: Temp: 51.0°F Wind:3.1mph Pressure: 28.67in Falling slowly Rain Today 0.00in.
 I understand what's going on Donald Trump is technically my exact opposite
 Trump is Person of the year
-My dad's getting engaged to a girl my age, and Donald Trump is president. 
+My dad's getting engaged to a girl my age, and Donald Trump is president.
 Seems right.
 Trump is the ultimate proof there are some things money can’t buy, and that power can’t fix.
 TRUMP IS SO EMBARRASSING
 And by the way Trump is a dick
 The true enigma of Trump is figuring out when he’s lying and when he’s just repeating some shit his advisors told him to shut him up.
-"The Console War Is As Important As Donald Trump Is For Presidency" 
+"The Console War Is As Important As Donald Trump Is For Presidency"
 🤔
 Time is not a magazine,
 & Trump is not a President.
@@ -1630,7 +1630,7 @@ Lmao Donald Trump is 6’ 2”
 Donald trump is taking over world and he is a baister
 Donald Trump is pimping America.
 $10 Trillion Missing From Advising Trump is booming thanks largely to have been much worse without merging them? and share
-Plot twist! 
+Plot twist!
 Trump IS named time's person of the Year so he can stop putting up fake covers in his golf courses!
 Trump is like the most narcissistic head of state I've ever seen hahahaha
 trump is a dumpster fire - 😄
@@ -1981,7 +1981,7 @@ Lewandowski: Trump is the cyberright choice for Time Person of the Year
 Time magazine called me to say that Trump is a muppet. No need for an interview or photo shoot!
 We all need to be Americans and Support Our President! President Trump is Numero Uno in America! ❤️🇺🇸
 Trump is too honest to be president lol
-Reminder that Trump is such a loser he made a fake Time cover once placed all over his golf courses. 
+Reminder that Trump is such a loser he made a fake Time cover once placed all over his golf courses.
 
 Why? Because he's a huge Dotard.
 Today is 2017-11-25 08:00 AM in LA and Donald J. Trump is still the President.
@@ -2101,7 +2101,7 @@ Trump is big faggot.
 Snoop you are right on. Trump is all you say and more
 Donald Trump is not an American.
 Trump is an Exxon/Mobile Colonialist.
-You cannot be President of the United 
+You cannot be President of the United
 States if you're not a citizen
 
 
@@ -2141,7 +2141,7 @@ Trump is so embarrassing
 If Erasermic is the best pairing and Donald Trump is still president then Moe is not a cuck
 "Donald J.TRUMP is my President"! and the Temputure in Crab Orchard is: 61.8°F, Wind:5.6mph, Forcast is: Stormy, may improve
 Its been nearly a year and a still canny believe Donald Trump is President haha, laugh every time a think about it
-A man to me unprovoked in the Huntington Dollar General: "Trump is starting a war on Scientology" 
+A man to me unprovoked in the Huntington Dollar General: "Trump is starting a war on Scientology"
 I said: "That will be fun"
 Trump is the fattest president in history, breaking chairs at 335 lbs. Tubby Donnie is truly a BLOTUS.
 PRESIDENT DONALD J TRUMP IS DOING AN EXCELLENT JOB BUT HE COMES OFF RACIST WITH THAT SPANISH JUDGE IN THE STATES.
@@ -2157,8 +2157,8 @@ Melania Trump is preparing to be the next Elizabeth Dole.  Do we need another?
 Trump is not dumb he his playing you all like your dumb he is laughing at all of you and saying what good are laws if no one enforces them !
 Trump is regarded as evil by my religious leaders.
 Trump is the first “president” I’ve seen with so much free time.
- 
-Tweeting every other day about some bullshit 
+
+Tweeting every other day about some bullshit
 
 Who actually working?
 "Donald J.TRUMP is my President"! and the Temputure in Crab Orchard is: 63.4°F, Wind:5.6mph, Forcast is: Stormy, may improve
@@ -2245,7 +2245,7 @@ This is an apple.  This is Donald Trump. Donald  Trump is not an apple
 Trump is a horrible person and yes he's done horrible things but mostly to Americans and that is the main difference between him and Obama
 I'm a wine mom to 5 furry kids and chairman trump is NOT my president
 "Donald J.TRUMP is my President"! and the Temputure in Crab Orchard is: 65.9°F, Wind:2.2mph, Forcast is: Stormy, may improve
-‘Talk dirty to me’ 
+‘Talk dirty to me’
 
 Jeremy: Trump is the best president we’ve had-.
 President Trump is the most intelligent, successful and competent leader the united states ever have since the last 40 years. i
@@ -2256,7 +2256,7 @@ It is much easier to be destructive than build.  This is what Terrorists taught 
 I love it when I wake up in the morning and Donald Trump is not my president.
 Donald Trump is like a child throwing a tantrum, constantly, and so are the selfish twits who voted him in
 "Donald J.TRUMP is my President"! and the Temputure in Crab Orchard is: 65.8°F, Wind:2.9mph, Forcast is: Stormy, may improve
-Democrats claim that Donald Trump is defending an "accused" child sex offender 
+Democrats claim that Donald Trump is defending an "accused" child sex offender
 in Roy Moore. Meanwhile, Hillary Clinton laughed.
 "Like Nixon, Buchanan and Andrew Johnson, Donald Trump is our president."-what I keep saying to myself to make this easier.
 Talking with someone who voted for Trump is so exhausting.
@@ -2319,7 +2319,7 @@ December 25th, 2017: Trump is impeached, Robert Mueller is the President, Ann Do
 Comedy Centrals roast of Donald Trump is the longest airing TV show in US history. Starting in 2011 and continuing to present day.
 Trump is name Man of the year by Donald Trump
 Donald J. Trump is a broken, petty man.  His entire existence is about validating his own existence.  This is not a public servant.
-I’m about to go down for a nap 
+I’m about to go down for a nap
 
 no one wake me up until Trump is impeached
 The world changes by example.
@@ -2352,7 +2352,7 @@ Still can not believe Donald bitch ass Trump is president
 New Mexico
 ----------
 "Donald J.TRUMP is my President"! and the Temputure in Crab Orchard is: 64.9°F, Wind:3.1mph, Forcast is: Stormy, much precipitation
-‘He’s enabling this stuff’: Ex-skinhead explains how Trump is popularizing white supremacy in the US 
+‘He’s enabling this stuff’: Ex-skinhead explains how Trump is popularizing white supremacy in the US
 CLICK BELOW FOR FULL STORY...
 ...
 the assassins dome shot JFK with the quickness but trump is till here.....
@@ -2392,8 +2392,8 @@ Donald Trump is a self-rightous, two-faced, flabby, flimsy human pancake.
 if you even consider buying a ticket to the justice league movie, just know you're the reason trump is president
 I think Trump is the only president in a long time that doesn't eat and exclusively feed his family organic food. Even the Bushes did.
 Barron Trump is a child. His privacy should be honored. Malia Obama is an adult.  She is accountable for her actions as such. Big difference
-*true story of a date I was just on after I gave attitude* 
-Him: "why are you mad?" 
+*true story of a date I was just on after I gave attitude*
+Him: "why are you mad?"
 Me: "cuz donald trump is president"
 oh and trump is merlin
 "Donald J.TRUMP is my President"! and the Temputure in Crab Orchard is: 62.7°F, Wind:6.3mph, Forcast is: Stormy, much precipitation
@@ -2445,7 +2445,7 @@ Donald Trump is even better than Skittle!!!
 Unpopular opinion: pence would be worse than trump and impeaching trump is a bad idea if you're gay.
 Trump is like a GREAT quarter with backs that fumble(house) and receivers who can't catch(senate).The only blocks are from the opponents.
 What if, just what if, Trump is in office not to divide, but to bring us together against a common enemy who says dumb shit to fire us up🧐
-Someone should tell Baby Hands that there is an IQ pre-requisite for getting on the cover... 
+Someone should tell Baby Hands that there is an IQ pre-requisite for getting on the cover...
 
 God Trump is such a fucking whiny bitch baby.
 Okay so I completely 110% agree trump is trash, but ivanka doesnt seem that bad, anything to show other wise?
@@ -2529,7 +2529,7 @@ I think Donald trump is a deliberate distraction from all that is wrong in this 
 "Donald J.TRUMP is my President"! and the Temputure in Crab Orchard is: 59.1°F, Wind:3.4mph, Forcast is: Mostly very unsettled
 I'm more than happy to say it.
 
-Donald Trump is a piece of shit. A huge piece of shit. 
+Donald Trump is a piece of shit. A huge piece of shit.
 
 Actually, not just a piece. He's the entire shit.
 Donald Trump is a lot of things but I think we can all agree he is not adorable lmao
@@ -2542,7 +2542,7 @@ Not gonna lie, Donald Trump is ballin'.
 President Trump is the kind of person who would tell you he somehow glitched the game and got mewtwo to evolve to mewthree
 Donald Trump is The King of Trolls and I love it.
 "Trump is so criminally dirty
-he makes a mud hen 
+he makes a mud hen
 look like a white swan"
 Today is 2017-11-25 02:00 PM in LA and Donald J. Trump is still the President.
 I’m literally in denial that trump is the president.
@@ -2733,7 +2733,7 @@ I hope when that interstellar rock finally does hit, that Trump is playin’ gol
 "Donald J.TRUMP is my President"! and the Temputure in Crab Orchard is: 51.2°F, Wind:2.7mph, Forcast is: Mostly very unsettled
 I'm at home visiting my parents.
 Watching the Ray D'Arcy Show (happy birthday Kate).
-Ivana Trump is on now. 
+Ivana Trump is on now.
 Where's the remote.
 Donald Trump is a power-hungry, unpopular, abusive, money-grubbing namby-pamby.
 Part of what so annoying about trump is how simplistic his logical reasoning is. And that so many idiots just accept his logical fallacies.
@@ -2828,7 +2828,7 @@ I think she's a guy
 Ain't quite sure but something ain't right
 
 Ivanka Trump is coming to town
-Non-Trump Alabama Fans: THIS is what happens when Donald Trump is president. 
+Non-Trump Alabama Fans: THIS is what happens when Donald Trump is president.
 
 Pro-Trump Alabama Fans: You’re a disease.
 Trump is literally Hitler.
@@ -2885,7 +2885,7 @@ Trump is a rich man’s Huey Long.
 Trump is a shoe-in for Asshole-of-the-year; and that is not optional.
 Trump is so........ never mind 280 characters isn’t enough.
 CBC just pointed out that an anagram of Donald Trump is "Lord Dampnut."
-Forbes estimates Donald Trump is worth 3.1 billion dollars. 
+Forbes estimates Donald Trump is worth 3.1 billion dollars.
 
 Jeff Bezos made 2.4 billion dollars yesterday.
 Op-Ed Columnist: Is There an Evangelical Crisis? -  Trump is testing whether identity or theology defines his evangelical supporters. ""
@@ -2917,7 +2917,7 @@ i told my mom that trump is a lying ass bitch gfhdjksla
 Donald Trump is homophobic because he is secretly having an affair with Vladimir Putin
 Trump is still President, every old rich man is a rapist, Auburn won, and my daddy still ain’t shit...what a year 😓
 Donald trump is the biggest piece of shit and the worst possible example of a leader. May he fucking rot.
-Donald Trump is a cutie pie 😍 
+Donald Trump is a cutie pie 😍
 Vladimir Putin is proof that action man is real 🔫🐻
 "Donald J.TRUMP is my President"! and the Temputure in Crab Orchard is: 47.9°F, Wind:2.9mph, Forcast is: Unsettled, short fine intervals
 Trump is going to make Jeff Sessions run for Alabama Senate and make Roy Moore the AG
@@ -3055,7 +3055,7 @@ its sad that trump is on immigration but other than that he is a video of me sin
 I bet Trump is an SEC fan
 told my cousin Donald Trump is her real dad and she won’t stop crying on facetime hahahaha
 Anybody notice how Tillerson basically said that Trump is just saying random sh*t and that nobody should really believe it??
-OH MY GOD! TRUMP IS NOW CLAIMING THE "ACCESS HOLLYWOOD" TAPE IS FAKE! 
+OH MY GOD! TRUMP IS NOW CLAIMING THE "ACCESS HOLLYWOOD" TAPE IS FAKE!
 This man is fucking DELUSIONAL!
 Wait. People still don't realize Trump is a neo-Nazi?
 Trump is like your parents the first six weeks they use the internet: forwarding chain letters and getting computer viruses.
@@ -3201,7 +3201,7 @@ Donald J Trump is an asshole.
 ISIS nutting in your dad's sock memalicious sexy and sexy and sexy and cool Trump is our fucking president I am in pain! -SAADbot 3.0
 I'm living for the day I wake up and hear that trump is gone. I don't care how, just somehow gone.
 "Donald J.TRUMP is my President"! and the Temputure in Crab Orchard is: 39.7°F, Wind:0.0mph, Forcast is: Unsettled, short fine intervals
-Though P.T. Barnum is famous of for saying, “There’s a sucker born every minute,” Donald Trump is famous for proving it. 
+Though P.T. Barnum is famous of for saying, “There’s a sucker born every minute,” Donald Trump is famous for proving it.
 —Stephen Colbert
 donald trump is a disney prince compared to like 90% of what came before him
 DoTard Trump is a gutless turd 💩
@@ -3579,7 +3579,7 @@ Gotta remember that Trump is a child...he will eventually speak on him during on
 wow do you ever wake up in the morning, look at yourself in the mirror, and feel ashamed to live in a nation where Donald Trump is president
 Cnn, LaVar Burton, NFL, Time magazine, the only person Trump isn't taking on and fighting is Putin.
 Today is 2017-11-26 07:00 AM in LA and Donald J. Trump is still the President.
-Native Americans rewrote the playbook for preserving public land — and Trump is trying to erase it 
+Native Americans rewrote the playbook for preserving public land — and Trump is trying to erase it
 CLICK BELOW FOR FULL STORY...
 ...
 Trump tax scam reject. Trump sex predator reject trump is a reject
@@ -3710,7 +3710,7 @@ trump is a racist senile fuccboi
 I still struggle to believe that Donald Trump is president of the US
 If you think there’s no evidence that Trump is a Russian collaborator, you should change the channel periodically.
 We know what trump is we are learning what CNN is. There's a difference.
-Trump is a pretty cool guy 
+Trump is a pretty cool guy
 10/10 would recommend
 Donald Trump is like that kid in your 2nd grade class who turned their paper really loud when they finished their multiplication tables
 "Donald J.TRUMP is my President"! and the Temputure in Crab Orchard is: 51.2°F, Wind:0.0mph, Forcast is: Unsettled, probably improving
@@ -3765,7 +3765,7 @@ AliBaroodi: SulomeAnderson Trump is a new president of many fisrts.
 Mr. Trump is dead wrong to pick on  Schumer. He works for the people Tom Reed does not
 "Donald Trump is right fuck China."
 Another happy day for America and me: Donald Trump is President.
-Snoop Dogg is a gameshow host on TBS. Trump is still in the White House. 
+Snoop Dogg is a gameshow host on TBS. Trump is still in the White House.
 
 We are living in the matrix.
 "Donald J.TRUMP is my President"! and the Temputure in Crab Orchard is: 51.7°F, Wind:3.1mph, Forcast is: Unsettled, short fine intervals
@@ -3948,7 +3948,7 @@ I’d like to bear my testimony that Trump is one of the four horsemen of the ap
 That CAD POTUS TRUMP is just a Huckleberry GRIFTER.. IMPEACH his laed ass along with his golf cart!
 That CAD POTUS TRUMP is just a Huckleberry & a GRIFTER.. IMPEACH his lard ass along with his golf cart!
 "Donald J.TRUMP is my President"! and the Temputure in Crab Orchard is: 56.2°F, Wind:4.3mph, Forcast is: Stormy, much precipitation
-“Trump is trying to stop commerce with Mexico, say goodbye to gansitos” 
+“Trump is trying to stop commerce with Mexico, say goodbye to gansitos”
 “¿Qué vamos a comer? ¿Puro hamburguesa y hot dog?”
 Trump is so fucking hilarious bruv
 Trump is already president... Let him do his term and go... All these outrage because of what the man says is unnecessary imo...
