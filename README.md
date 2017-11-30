@@ -4,6 +4,7 @@ My entries for this year's NaNoGenMo: https://github.com/NaNoGenMo/2017/issues/7
 
 * [*280*](01-280)
 * [*What is Trump?*](02-what-is-trump)
+* [*Pride, Prejudice*](03-reducifier)
 
 Original blurb below, and see also https://github.com/NaNoGenMo/2017.
 
