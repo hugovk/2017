@@ -57,3 +57,14 @@ word count: 54,273	diff: 41.748%	summarise
 This produces output.txt before the summariser, and output2.txt after the summariser.
 
 Works at least with macOS High Sierra with Python 3.6.3.
+
+## Example
+
+Here's a diff of *Pride and Prejudice* and the first pass output.txt:
+
+!['tis a truth universally acknowledged, that a single man in possession of a good fortune, must be in want of a wife.](https://user-images.githubusercontent.com/1324225/33440948-0ff233c0-d5fa-11e7-9059-bc23df10ee2a.png)
+
+
+
+
+
